@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @cumen420
 - 👀 I’m interested in some stuff
 - 🌱 I’m currently learning many things
-- 💞️ I’m looking to collaborate on living
+- 💞️ I’m looking to collaborate on a thing or two
 - 📫 How to reach me is a very good question
 
 <!---
